@@ -1,21 +1,30 @@
-# Contact-Me
-Description How to contact me for FH5 CR
+# 📩 Contact Me — FH5 CR
 
-Instagram :
-https://www.instagram.com/risenx__/
-https://www.instagram.com/techkr_risen/
+Need to reach me for **Forza Horizon 5 CR**?  
+Choose any platform below 👇
 
-Discord:
-@risenx__
+## 🌐 Socials
 
-WhatsApp:
-https://wa.me/+6283838481461
+### 📷 Instagram
+- [@risenx__](https://www.instagram.com/risenx__/)
+- [@techkr_risen](https://www.instagram.com/techkr_risen/)
 
-Tiktok:
-https://www.tiktok.com/@techkr_risen
+### 💬 Discord
+- `@risenx__`
 
-Steam :
-https://steamcommunity.com/id/risen-x
+### 📱 WhatsApp
+- [Chat on WhatsApp](https://wa.me/6283838481461)
 
-Facebook :
-https://www.facebook.com/risen.838287
+### 🎵 TikTok
+- [@techkr_risen](https://www.tiktok.com/@techkr_risen)
+
+### 🎮 Steam
+- [Risen X](https://steamcommunity.com/id/risen-x)
+
+### 👤 Facebook
+- [Risen](https://www.facebook.com/risen.838287)
+
+---
+
+⭐ Fastest response:
+**Instagram / WhatsApp**
