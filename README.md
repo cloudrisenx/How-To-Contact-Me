@@ -14,7 +14,7 @@ Choose any platform below 👇
 ### 💬 Discord
 - `@risenx__`
 - [Personal Server](https://discord.gg/mFGaDrSHwH)
-- [Race Public Server](https://discord.gg/rtpT2zyWXE)
+- [Convoy / Race / Chill](https://discord.gg/rtpT2zyWXE) (AC / ACC / LMU / AM2 / TCM)
 
 ### 📱 WhatsApp
 - [Chat on WhatsApp](https://wa.me/6283838481461)
