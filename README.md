@@ -13,6 +13,8 @@ Choose any platform below 👇
 
 ### 💬 Discord
 - `@risenx__`
+- [Personal Server](https://discord.gg/mFGaDrSHwH)
+- [Race Public Server](https://discord.gg/rtpT2zyWXE)
 
 ### 📱 WhatsApp
 - [Chat on WhatsApp](https://wa.me/6283838481461)
